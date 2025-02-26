@@ -1,1 +1,3 @@
-# Quality-Vapes
+Discover a premium vaping experience with our carefully selected range of **quality vapes**. From sleek pod systems to powerful mods, our collection ensures smooth performance, rich flavors, and long-lasting battery life. Whether you're a beginner or a pro, we have the perfect device for you.  
+We source only from trusted brands, guaranteeing safety, durability, and satisfaction with every puff. Our e-liquids come in a variety of flavors, offering a satisfying hit without compromising on taste or quality. Enjoy cutting-edge technology designed for convenience and superior vapor production.  
+Upgrade your vape game today with the best selection of [Quality Vapes](https://qualityvapes.ca/). With expert customer support and fast shipping, you can shop confidently, knowing you’re getting top-tier products at great prices.
